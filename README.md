@@ -1,0 +1,1 @@
+# privary_policy
